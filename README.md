@@ -1,1 +1,0 @@
-# -cabinet-synera-paris
